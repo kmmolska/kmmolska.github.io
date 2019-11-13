@@ -8,7 +8,6 @@ image: city-3.jpg
 ---
 
 Sign up for our newsletter
-<div class="container">
   <form action="https://formspree.io/mayyjvlk" method="POST">
     <div class="row">
       <div class="col-25">
@@ -30,4 +29,3 @@ Sign up for our newsletter
       <input type="submit" value="Subscribe">
     </div>
   </form>
-</div>
