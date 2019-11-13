@@ -5,8 +5,8 @@ title: Contact
 
 Zoap  
 Ewa Šmidová-Molska  
-:telephone_receiver: +45 50 15 10 19  
-:email: [molska.ewa@gmail.com]('mailto:molska.ewa@gmail.com')
++45 50 15 10 19  
+[molska.ewa@gmail.com]('mailto:molska.ewa@gmail.com')
 
 
 Södra Västkustvägen 9  
