@@ -1,11 +1,21 @@
 ---
 layout: page
-title: Sample Posts
+title: Newsletter
 ---
-{% for post in site.categories.sample %}
-  <a href="{{ site.github.url }}{{ post.url }}">
-    <div class="featured-posts" {% if post.image %}style="background-image:url({{ site.github.url }}/assets/img/{{ post.image }})"{% endif %}>
-      <h2><span>{{ post.title }}</span></h2>
-    </div>
-  </a>
-{% endfor %}
+<form
+  action="https://formspree.io/mayyjvlk"
+  method="POST"
+>
+  <label>
+    Your name:
+    <textarea name="message"></textarea>
+  </label>
+  <label>
+    Your email:
+    <input type="text" name="_replyto">
+  </label>
+
+  <!-- your other form fields go here -->
+
+  <button type="submit">Send</button>
+</form>
