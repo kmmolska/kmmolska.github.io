@@ -22,7 +22,7 @@ Sign up for our newsletter
         <label for="subject">Email</label>
       </div>
       <div class="col-75">
-        <input type="email" name="email" placeholder="Your eamil..">
+        <input type="email" name="email" placeholder="Your email..">
       </div>
     </div>
     <div class="row">
