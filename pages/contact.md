@@ -1,14 +1,11 @@
 ---
 layout: misc
-title: Contact
+title: Kontakt
 ---
 
-Hi there! I'm Ewa. I’m a molecular biology doctor turned enterpreneur. 
+Paweł Bolesław Franczak
 
-Please sign up for the newsletter, so I can inform you when ZOAP is launched.
+tel. 576 718 280
+[pfranczak1@gmail.com]('mailto:pfranczak1@gmail.com')
 
-Feel free to reach out to me at
-+45 50 15 10 19  
-[molska.ewa@gmail.com]('mailto:molska.ewa@gmail.com')
-
-
+Przyjmuję w gabinecie przy ul. Solec 97 w Warszawie.
