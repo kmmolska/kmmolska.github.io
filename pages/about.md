@@ -1,10 +1,14 @@
 ---
 layout: misc
-title: About
+title: O MNIE
 ---
 
-Zoap Cleansing Powder is made form natural ingredients that are good for your skin. You can use is as a substitute for shower when you have no access to water. On a train or plane, while hiking in the mountains or after a long day at work. It will help you restore confidence and save water at the same time.
+Paweł Bolesław Franczak
 
-If you skip 1 shower a week you will have saved 2000 l of water in one year! This is as much as you will drink during 2 years time.
+Jestem psychoterapeutą w trakcie nauki zawodu. Jestem też dyplomowanym filozofem. Bywam publicystą.
+Pracuję i wciąż uczę się nurtu psychoterapii MetaSystemowej (psychoterapii pełni), który na objawy, choroby i dysfunkcje patrzy z równym z szacunkiem i życzliwością, widząc w nich głębszą, niedostrzeganą często mądrość i miłość. 
+Wiedzę o tym nurcie zdobywałem m. in. w Instytucie Psychoterapii Integratywnej w Krakowie, obecnie pogłębiam ją na regularnej superwizji szkoleniowej u certyfikowanego superwizora. 
+Jestem ojcem, mężem, śpiewakiem. 
+Zapraszam każdego, kto traci lub stracił już to, co dla niego najcenniejsze: miłość, zdrowie czy poczucie sensu i kto pustkę tę wypełnia nałogiem, lękiem lub smutkiem.
 
-Life is a journey. Stay fresh!
+Cennik: psychoterapia indywidualna: 130 zł/50 min., psychoterapia małżeńska/rodzinna: 160 zł/50 min.
