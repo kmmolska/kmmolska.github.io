@@ -14,9 +14,9 @@ sass:
   style: :nested
 
 # Customise atom feed settings (this is where Jekyll-Feed gets configuration information)
-title:              "Zoap"
-description:        "Stay fresh on your journey."
-author:             "Ewa Šmidová-Molska"
+title:              "Gabinet psychoterapii"
+description:        "Psychoterapia Warszawa"
+author:             "Paweł Bolesław Franczak"
 
 # RSS 2.0 can be used instead of Atom by uncommenting following two lines
 #feed:
