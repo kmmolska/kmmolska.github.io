@@ -6,9 +6,13 @@ title: O MNIE
 Paweł Bolesław Franczak
 
 Jestem psychoterapeutą w trakcie nauki zawodu. Jestem też dyplomowanym filozofem. Bywam publicystą.
-Pracuję i wciąż uczę się nurtu psychoterapii MetaSystemowej (psychoterapii pełni), który na objawy, choroby i dysfunkcje patrzy z równym z szacunkiem i życzliwością, widząc w nich głębszą, niedostrzeganą często mądrość i miłość. 
+Pracuję i wciąż uczę się nurtu psychoterapii MetaSystemowej (psychoterapii pełni), który na objawy, choroby i dysfunkcje patrzy z równym z szacunkiem i życzliwością, widząc w nich głębszą, niedostrzeganą często mądrość i miłość.
+
 Wiedzę o tym nurcie zdobywałem m. in. w Instytucie Psychoterapii Integratywnej w Krakowie, obecnie pogłębiam ją na regularnej superwizji szkoleniowej u certyfikowanego superwizora. 
+
 Jestem ojcem, mężem, śpiewakiem. 
+
 Zapraszam każdego, kto traci lub stracił już to, co dla niego najcenniejsze: miłość, zdrowie czy poczucie sensu i kto pustkę tę wypełnia nałogiem, lękiem lub smutkiem.
+
 
 Cennik: psychoterapia indywidualna: 130 zł/50 min., psychoterapia małżeńska/rodzinna: 160 zł/50 min.
