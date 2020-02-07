@@ -20,4 +20,3 @@ Cennik:
 psychoterapia indywidualna: 130 zł/50 min
 
 psychoterapia małżeńska/rodzinna: 160 zł/50 min
-
