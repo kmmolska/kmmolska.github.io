@@ -14,5 +14,12 @@ Jestem ojcem, mężem, śpiewakiem.
 
 Zapraszam każdego, kto traci lub stracił już to, co dla niego najcenniejsze: miłość, zdrowie czy poczucie sensu i kto pustkę tę wypełnia nałogiem, lękiem lub smutkiem.
 
+Oferuję psychoterapię dla mężczyzn z depresją, myślami samobójczymi, chronicznym smutkiem.
 
-Cennik: psychoterapia indywidualna: 130 zł/50 min., psychoterapia małżeńska/rodzinna: 160 zł/50 min.
+
+Cennik: 
+
+psychoterapia indywidualna: 130 zł/50 min
+
+psychoterapia małżeńska/rodzinna: 160 zł/50 min
+
