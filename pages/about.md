@@ -8,9 +8,16 @@ Paweł Bolesław Franczak
 
 Zapraszam każdego, kto traci lub stracił już to, co dla niego najcenniejsze: miłość, zdrowie czy poczucie sensu i kto pustkę tę wypełnia nałogiem, lękiem lub smutkiem.
 
-Jestem psychoterapeutą w trakcie nauki zawodu. Stosuję i wciąż zgłębiam nurt psychoterapii MetaSystemowej (psychoterapii pełni), który na objawy i choroby patrzy z szacunkiem, widząc w nich głębszą mądrość i sens.
+Jestem psychoterapeutą w trakcie czteroletniego, całościowego szkolenia w metodzie analizy bioenergetycznej ( Aleksandra Lowena), prowadzonego przez Polskie Stowarzyszenie Analizy Bioenergetycznej. Studiowałem też w Polskim Instytucie Psychoterapii Integratywnej w Krakowie.
 
-Wiedzę o tym nurcie zdobywałem m. in. w Instytucie Psychoterapii Integratywnej w Krakowie. Obecnie pogłębiam ją na regularnej superwizji szkoleniowej u certyfikowanego superwizora.
+Odbyłem praktyki w lubelskim Ośrodku Leczenia Uzależnień, współprowadząc grupę terapeutyczną osób z uzależnieniami, byłem też wolontariuszem w Ośrodku Psychiatrii Środowiskowej i Psychoterapii Ex Cordis w Lublinie.
+
+W swojej pracy łączę elementy różnych nurtów, m.in. pracy z ciałem, psychoterapii MetaSystemowej, terapii krótkoterminowej, prowokatywnej czy Ericksonowskiej, ale i psychodynamicznej. 
+
+Pozostaję w regularnej superwizji u certyfikowanego superwizora PTPI i Polskiej Federacji Psychoterapii.
+
+Prywatnie jestem śpiewakiem. Zajmuję się muzyką tradycyjną i awangardową, czasem je łącząc. Badam śpiew głosem otwartym, jego piękno i znaczenie w procesie leczenia. 
+Pochodzę z lubelskiej wsi, z rodziny chłopskiej, to ważna część mojej tożsamości. Tak jak bycie mężem i ojcem.
 
 
 Cennik: 
