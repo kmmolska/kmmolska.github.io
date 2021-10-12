@@ -15,6 +15,6 @@ Wiedzę o tym nurcie zdobywałem m. in. w Instytucie Psychoterapii Integratywnej
 
 Cennik: 
 
-psychoterapia indywidualna: 130 zł/50 min
+psychoterapia indywidualna: 140 zł/50-55 min
 
-psychoterapia małżeńska/rodzinna: 160 zł/50 min
+psychoterapia małżeńska/rodzinna: 180 zł/90 min
