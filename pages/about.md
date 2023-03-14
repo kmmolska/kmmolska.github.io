@@ -13,12 +13,11 @@ W swojej pracy łączę elementy różnych nurtów, m.in. pracy z ciałem, psych
 
 Zapraszam, jeśli zmagasz się z lękiem, dźwigasz ciężar smutku, przeżywasz żałobę, cierpisz na bezsenność, masz kłopoty w relacjach z bliskimi lub cierpisz na dolegliwości somatyczne (np. bóle bez podłoża medycznego). Zapraszam też wszystkich, którzy zgubili sens i nie są w stanie osiągnąć życiowego spełnienia. 
 
-Poddaję się regularnej superwizji u certyfikowanego superwizora PTPI i Polskiej Federacji Psychoterapii.
-Prywatnie jestem śpiewakiem. Pochodzę z lubelskiej wsi, z rodziny chłopskiej. Jestem mężem i ojcem."
+Poddaję się regularnej superwizji u certyfikowanego superwizora. Prywatnie jestem śpiewakiem. Pochodzę z lubelskiej wsi, z rodziny chłopskiej. Jestem mężem i ojcem."
 
 
 Cennik: 
 
-psychoterapia indywidualna: 150 zł/50-55 min
+psychoterapia indywidualna: 160 zł/50-55 min
 
-psychoterapia małżeńska/rodzinna: 200 zł/90 min
+psychoterapia małżeńska/rodzinna: 210 zł/90 min
