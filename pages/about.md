@@ -5,7 +5,7 @@ title: O MNIE
 
 Paweł Bolesław Franczak
 
-"Jestem psychoterapeutą w trakcie czteroletniego, całościowego szkolenia w metodzie analizy bioenergetycznej (Aleksandra Lowena), prowadzonego przez Polskie Stowarzyszenie Analizy Bioenergetycznej. Studiowałem też w Polskim Instytucie Psychoterapii Integratywnej w Krakowie.
+Jestem psychoterapeutą w trakcie czteroletniego, całościowego szkolenia w metodzie analizy bioenergetycznej (Aleksandra Lowena), prowadzonego przez Polskie Stowarzyszenie Analizy Bioenergetycznej. Studiowałem też w Polskim Instytucie Psychoterapii Integratywnej w Krakowie.
 
 Odbyłem praktyki w lubelskim Ośrodku Leczenia Uzależnień, współprowadząc grupę terapeutyczną osób z uzależnieniami, byłem też wolontariuszem w Ośrodku Psychiatrii Środowiskowej i Psychoterapii Ex Cordis w Lublinie. 
 
@@ -13,7 +13,7 @@ W swojej pracy łączę elementy różnych nurtów, m.in. pracy z ciałem, psych
 
 Zapraszam, jeśli zmagasz się z lękiem, dźwigasz ciężar smutku, przeżywasz żałobę, cierpisz na bezsenność, masz kłopoty w relacjach z bliskimi lub cierpisz na dolegliwości somatyczne (np. bóle bez podłoża medycznego). Zapraszam też wszystkich, którzy zgubili sens i nie są w stanie osiągnąć życiowego spełnienia. 
 
-Poddaję się regularnej superwizji u certyfikowanego superwizora. Prywatnie jestem śpiewakiem. Pochodzę z lubelskiej wsi, z rodziny chłopskiej. Jestem mężem i ojcem."
+Poddaję się regularnej superwizji u certyfikowanego superwizora. Prywatnie jestem śpiewakiem. Pochodzę z lubelskiej wsi, z rodziny chłopskiej. Jestem mężem i ojcem.
 
 
 Cennik: 
