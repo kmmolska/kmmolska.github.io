@@ -5,15 +5,22 @@ title: O MNIE
 
 Paweł Bolesław Franczak
 
-Jestem psychoterapeutą w trakcie czteroletniego, całościowego szkolenia w metodzie analizy bioenergetycznej (Aleksandra Lowena), prowadzonego przez Polskie Stowarzyszenie Analizy Bioenergetycznej. Studiowałem też w Polskim Instytucie Psychoterapii Integratywnej w Krakowie.
+Jestem psychoterapeutą w końcowej fazie całościowego szkolenia psychoterapeutycznego w metodzie Aleksandra Lowena (analizie bioenergetycznej). Studiowałem też w Polskim Instytucie Psychoterapii Integratywnej w Krakowie. Jestem także filozofem, absolwentem UMCS.
 
-Odbyłem praktyki w lubelskim Ośrodku Leczenia Uzależnień, współprowadząc grupę terapeutyczną osób z uzależnieniami, byłem też wolontariuszem w Ośrodku Psychiatrii Środowiskowej i Psychoterapii Ex Cordis w Lublinie. 
+Pracuję z pacjentami od 2016 roku, prowadzę terapię indywidualną i par, pracuję też z grupami. Źródłem mojej pracy jest terapia Pełni (MetaSystemowa), stworzona przez Andrzeja Nehrebeckiego. Oznacza to, że traktuję objawy z szacunkiem i życzliwością, raczej jako posłańców z ważną wiadomością, którą należy dopiero odczytać, niż niechcianych gości. Terapia Lowenowska pozwala mi wykorzystywać w tym celu także ciało i płynące z niego sygnały.
 
-W swojej pracy łączę elementy różnych nurtów, m.in. pracy z ciałem, psychoterapii MetaSystemowej, terapii krótkoterminowej, prowokatywnej czy Ericksonowskiej.
+Z powodzeniem pracuję z pacjentami zmagającymi się z bólem o niewyjaśnionym podłożu, depresją, lękami, uzależnieniami i mającymi kłopoty w związku czy z dziećmi. Wszystkie te trudności są dla mnie nie tyle kłopotem jednostki, co częścią większej całości – systemu rodzinnego.
 
-Zapraszam, jeśli zmagasz się z lękiem, dźwigasz ciężar smutku, przeżywasz żałobę, cierpisz na bezsenność, masz kłopoty w relacjach z bliskimi lub cierpisz na dolegliwości somatyczne (np. bóle bez podłoża medycznego). Zapraszam też wszystkich, którzy zgubili sens i nie są w stanie osiągnąć życiowego spełnienia. 
+Regularnie superwizuję się u doświadczonego, certyfikowanego superwizora. Należę do Polskiego Stowarzyszenia Analizy Bioenergetycznej i International Institute for Bioenergetic Analysis. Pozostaję pod stałą superwizją u certyfikowanego superwizora.
 
-Poddaję się regularnej superwizji u certyfikowanego superwizora. Prywatnie jestem śpiewakiem. Pochodzę z lubelskiej wsi, z rodziny chłopskiej. Jestem mężem i ojcem.
+Przez wiele lat pracowałem jako dziennikarz i redaktor, m.in. w Kurierze Lubelskim, Przekroju, Wiedzy i Życiu. Stamtąd wyniosłem ciekawość drugiego człowieka i traktowanie każdego w indywidualny sposób.
+
+Pochodzę ze wsi Olbięcin na Lubelszczyźnie. Moje chłopskie korzenie to źródło mojej siły i dumy. Po godzinach zajmuje się tradycyjnym śpiewem, głównie pieśniami polskimi. 
+
+Jestem ojcem dwóch chłopców i szczęśliwym mężem. 
+
+Nie mogę żyć bez kawy, a Tour De France to dla mnie święto.
+
 
 
 Cennik: 
