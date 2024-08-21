@@ -10,5 +10,4 @@ tel. 576 718 280
 
 Przyjmuję w Warszawie: 
 - w gabinecie przy ul. Kasprowicza 70/22 (obok stacji Metra Wawrzyszew)
-- oraz w Ośrodku Renort - Słuchając ciała, ul. Kasprowicza 36a (obok stacji Metra Stare Bielany)
 - w Ośrodku Holipsyche, ul. Joachima Lelewela 2/1, na Żoliborzu
