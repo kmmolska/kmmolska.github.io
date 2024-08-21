@@ -25,6 +25,6 @@ Nie mogę żyć bez kawy, a Tour De France to dla mnie święto.
 
 Cennik: 
 
-psychoterapia indywidualna: 160 zł/50-55 min
+psychoterapia indywidualna: 180 zł/50-55 min
 
-psychoterapia małżeńska/rodzinna: 210 zł/90 min
+psychoterapia małżeńska/rodzinna: 250 zł/90 min
