@@ -13,7 +13,7 @@ Z powodzeniem pracuję z pacjentami zmagającymi się z bólem o niewyjaśnionym
 
 Regularnie superwizuję się u doświadczonego, certyfikowanego superwizora. Należę do Polskiego Stowarzyszenia Analizy Bioenergetycznej i International Institute for Bioenergetic Analysis. Pozostaję pod stałą superwizją u certyfikowanego superwizora.
 
-Przez wiele lat pracowałem jako dziennikarz i redaktor, m.in. w Kurierze Lubelskim, Przekroju, Wiedzy i Życiu. Stamtąd wyniosłem ciekawość drugiego człowieka i traktowanie każdego w indywidualny sposób.
+Przez wiele lat pracowałem jako dziennikarz i redaktor, m.in. w Kurierze Lubelskim, Przekroju, Wiedzy i Życiu. Stamtąd wyniosłem ciekawość drugiego człowieka i traktowanie każdego w indywidualny sposób. Regularnie publikuję dla Onet.pl
 
 Pochodzę ze wsi Olbięcin na Lubelszczyźnie. Moje chłopskie korzenie to źródło mojej siły i dumy. Po godzinach zajmuje się tradycyjnym śpiewem, głównie pieśniami polskimi. 
 
