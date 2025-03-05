@@ -10,4 +10,3 @@ tel. 576 718 280
 
 Przyjmuję w Warszawie: 
 - w gabinecie przy ul. Kasprowicza 70/22 (obok stacji Metra Wawrzyszew)
-- w Ośrodku Holipsyche, ul. Joachima Lelewela 2/1, na Żoliborzu
